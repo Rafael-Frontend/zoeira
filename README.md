@@ -1,0 +1,3 @@
+# zoeira
+Zoeira hue
+NÃO LEVE A SÉRIO É APENAS UMA PÁGINA DE ZOEIRA PARA OS AMIGOS.
